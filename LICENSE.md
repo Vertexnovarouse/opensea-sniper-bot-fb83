@@ -1,4 +1,4 @@
-# 
+# Get the ultimate opensea sniper bot with premium NFT Scanner for opensea sniper bot | proxy-transactions & mint-detection. Featuring proxy-transactions and mint-detection, it's
 
 
 
